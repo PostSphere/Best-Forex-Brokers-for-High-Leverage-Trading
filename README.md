@@ -1,6 +1,6 @@
 # Best-Forex-Brokers-for-High-Leverage-Trading
 
-![Image]([image-url](https://i.ibb.co/svGR3Krp/Screenshot-2025-07-08-172507.png))
+![Image](https://i.ibb.co/svGR3Krp/Screenshot-2025-07-08-172507.png)
 
 ## Introduction
 
